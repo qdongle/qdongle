@@ -1,3 +1,3 @@
-🧲 I'm a chemist, but I love poetry. 🫠
+ 🧪 I'm a chemist, but I love poetry. ✒️
   
-🍳 My archetype is C: chemistry and cats.🐱
+🍳 My archetype is 🧲 : chemistry and cats. 🐱
